@@ -5,4 +5,5 @@ Todas as fontes foram conferidas por mim, algumas são vídeos que eu já havia 
 Desde a faculdade tenho a curiosidade de saber porque não existem, e nunca existiram propriamente, motores focados e projetados para o etanol brasileiro, feitos aqui. Já que o país é o segundo maior produtor de etanol. Fora que tenho "vivência", experiência de quando existiram veículos adaptados da gasolina para o etanol na época do Pró-álcool.
 Não realizei perguntas por ter acabo o teste grátis depois de produzir o que eu queria no estúdio, e esse era o meu foco, já que não tenho muitas dúvidas além da que é o objetivo geral do projeto(o projeto partiu da dúvida).
 
+resumo em vídeo: https://notebooklm.link.google/BrPjZjcmrIbg
 https://notebook.google.com/notebook/eb26dc43-a0f8-4b83-ad2a-c4c7a8de62fa
