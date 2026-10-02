@@ -7,4 +7,6 @@ Não realizei perguntas por ter acabo o teste grátis depois de produzir o que e
 
 resumo em vídeo: https://notebooklm.link.google/BrPjZjcmrIbg
 
+relatório: https://notebooklm.link.google/VYd2wbqwQS7v
+
 https://notebook.google.com/notebook/eb26dc43-a0f8-4b83-ad2a-c4c7a8de62fa
